@@ -1,1 +1,1 @@
-This repo will look intriguing and awesome overtime ;-)
+This repo will look intriguing and awesome with time ;-)
